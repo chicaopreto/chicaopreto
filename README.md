@@ -8,3 +8,4 @@
 .🤑 Viva a estética 
 .🗿 Number one
 .😼 Treinar até morrer 
+.🤑 Estudo no 1 ano B
