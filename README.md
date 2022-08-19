@@ -1,4 +1,4 @@
-opa eu sou caua 
+opa eu sou Caua Oliveira Araujo 
 tenho 16 anos 
 estudo no milton carneiro
 sou o caçador de demonios 
